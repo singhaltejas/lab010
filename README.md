@@ -1,3 +1,7 @@
 # lab010
 
-#tejas singhal CSE MSU
+tejas singhal is a michigan-loving asshat
+
+#GO GREEN
+
+dark mode sucks
